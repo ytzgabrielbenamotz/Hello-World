@@ -1,2 +1,4 @@
 # Hello-World
-This is my first( of a huge mountain) of repositorys and codes to come in the near future.B"H
+Hello MyFriends!
+
+  Here is me Mario. my first using of GitHub. My first  commitment!!!! :)
